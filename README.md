@@ -1,5 +1,5 @@
-![Creating           ](https://github.com/NirmitaDebnath/NirmitaDebnath/assets/129526943/c4bc5ca7-d421-43fc-bbf7-86446f173840)
 
+![Uploading Creating . . . . . ..png…]()
 
 ### 🌐 Socials:
 [![Instagram](https://img.shields.io/badge/Instagram-%23E4405F.svg?logo=Instagram&logoColor=white)](https://instagram.com/nirmitadebnath) [![LinkedIn](https://img.shields.io/badge/LinkedIn-%230077B5.svg?logo=linkedin&logoColor=white)](https://linkedin.com/in/nirmita-debnath-5a1b52201) 
