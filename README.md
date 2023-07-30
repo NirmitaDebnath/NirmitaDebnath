@@ -1,7 +1,5 @@
 ### Hiii!!
-### About Me:
-### Creating . . . . . .
-![Screenshot 2023-07-29 085203](https://github.com/NirmitaDebnath/NirmitaDebnath/assets/129526943/942372aa-8586-4a37-8b5c-fd648ed783d1)
+![n](https://github.com/NirmitaDebnath/NirmitaDebnath/assets/129526943/d1a2af8f-1a61-43c3-a459-9e76b6985f3d)
 
 
 ### 🌐 Socials:
