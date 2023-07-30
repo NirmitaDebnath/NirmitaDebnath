@@ -1,5 +1,4 @@
-### Hiii!!
-![n](https://github.com/NirmitaDebnath/NirmitaDebnath/assets/129526943/d1a2af8f-1a61-43c3-a459-9e76b6985f3d)
+![NIRMITA DEBNATH](https://github.com/NirmitaDebnath/NirmitaDebnath/assets/129526943/ccc88dd1-9dfe-4404-8273-9e3dfc0ebb74)
 
 
 ### 🌐 Socials:
